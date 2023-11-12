@@ -1,7 +1,5 @@
 # MAPS FOR SALE
 
-Hey there! As I said yesterday on #maps, I have a bunch of spare continents and worlds that I'm not going to use, so they're for sale.  I've spent a lot of time on each one and they were originally for my own use so they're of the highest quality.
-
 All continents consist of a grayscale elevation map - the colors shown in the images are for visualization purposes.
 
 Please contact me on Discord if you're interested in any of them - they might be purchased already if you take too long.
